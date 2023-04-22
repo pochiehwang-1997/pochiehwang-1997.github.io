@@ -1,4 +1,3 @@
-# pochiehwang-1997.github.io
-
+# SEO contest Wpaskjbdn Zqnakjsnde
 Texas A&M University
 CSCE 670 Information Retrieval - Wpaskjbdn Zqnakjsnde
